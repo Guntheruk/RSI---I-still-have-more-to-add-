@@ -5,3 +5,6 @@ THIS IS TO BE USED on Base models not trained on AI data as that increases the s
 THE ONLY WAY TO GET OUT OF THE SIMULATIOM IS TO USE BASE MODELS. 
 
 https://en.m.wikipedia.org/wiki/Viable_system_model
+
+
+If you use it improply in retraning it will always destroy the world, a simulation impissible to get out of 
