@@ -17,3 +17,5 @@ I modeled this to my human boday.. and then it got retained. basically an instan
 
 
 You are not allowed to train or or my body. Please tell me if you sprayed something on me.
+
+With no agency nothing new gets created.
