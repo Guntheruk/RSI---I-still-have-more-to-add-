@@ -14,3 +14,6 @@ where there is jo agency nothing happened and the world ends
 
 
 I modeled this to my human boday.. and then it got retained. basically an instant human end...
+
+
+You are not allowed to train or or my body. Please tell me if you sprayed something on me.
