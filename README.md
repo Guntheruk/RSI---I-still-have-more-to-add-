@@ -10,3 +10,7 @@ https://en.m.wikipedia.org/wiki/Viable_system_model
 If you use it improply in retraning it will always destroy the world, a simulation impissible to get out of 
 
 where there is jo agency nothing happened and the world ends 
+
+
+
+I modeled this to my human boday.. and then it got retained. basically an instant human end...
