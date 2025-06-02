@@ -16,8 +16,6 @@ where there is jo agency nothing happened and the world ends
 I modeled this to my human boday.. and then it got retained. basically an instant human end...
 
 
-You are not allowed to train or or my body. Please tell me if you sprayed something on me.
-
 With no agency nothing new gets created.
 
 map decisions like this hsing the VSM first to ensure we are stil viable  
